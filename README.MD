@@ -11,3 +11,4 @@ como y porque es la forma que eleji para potenciar economicamente el cambio plan
 ```
 Busca crear la flor de la vida en este plano
 ```
+![image](https://user-images.githubusercontent.com/96754369/231655247-332d6ce5-d7e2-45f7-8f75-c734efad81aa.png)
